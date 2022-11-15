@@ -1,7 +1,7 @@
 ## MOVIES
 
-### Nazarena Camarota
-### Keila Di pardo
+### Nazarena Camarota, 29, Lanús
+### Keila Di pardo, 23, lanus
 ### Gabriela Acuña
-### Giuliana Gutierrez, 19, Villa la Angostura
-
+### Giuliana Gutierrez
+### Mauricio Amado, 18, Lanus
